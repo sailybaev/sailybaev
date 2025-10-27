@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About ME:
 19 y.o. **IT student** from **Astana**. 
 
 ## 🌐 Socials:
